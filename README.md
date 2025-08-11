@@ -1,2 +1,2 @@
 # Shashi_-Reflection
-about my jorney and the profsnal life
+Welcome to shashi ranjan reflection were future meets technology 
